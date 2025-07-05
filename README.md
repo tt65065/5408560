@@ -20,4 +20,4 @@
 
 如果你正在寻找一个真正值得长期收藏的日本AV免费资源站，请将本站加入你的书签。每日上线新资源，实时同步优质片源，我们致力于为你提供一个安静、快速、纯粹的观影空间，值得你反复回访。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/5408560 ）</span>
